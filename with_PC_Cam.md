@@ -1,7 +1,3 @@
-Of course! Here is the updated estimation including both brand new and second-hand options for a desktop computer and a camera.
-
----
-
 ### **Updated Business Setup Cost: Sublimation Printer & Photo Frames**
 *(Including Computer & Camera)*
 
