@@ -1,5 +1,3 @@
-Of course! This is an exciting venture. Setting up a custom merchandise shop is a great business idea. Let's break down the estimation into three parts:
-
 1.  **Relevant Product Add-ons:** Based on your listed items, here are highly relevant and popular products to consider.
 2.  **Machinery & Equipment Cost:** The core of your investment.
 3.  **Raw Material & Initial Inventory Cost.**
@@ -93,6 +91,3 @@ This combines the machinery and raw material for a complete picture.
     4.  **Business Plan:** Don't forget marketing costs (website, social media, shop signage) which can be an additional ₹ 50,000 - ₹ 1,00,000.
 
 This business has high potential, especially around festivals and personal gifting seasons. Start with a focused product list and expand as you grow your customer base.
-
-***Disclaimer:*** *These are estimated figures based on market research. Actual costs can vary significantly based on brand, quality, location, and negotiations with suppliers. It is strongly advised to get multiple quotations before making any purchases.*# Estimation-Photo-Shop
-Photoshop-Estimation
